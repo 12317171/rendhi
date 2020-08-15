@@ -1,0 +1,2 @@
+# rendhi
+maju pantang menyerah
